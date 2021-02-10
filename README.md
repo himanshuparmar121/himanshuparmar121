@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- Learning Everyday
+- Learning Everyday...
 - Here's my HackerRank Profile - https://www.hackerrank.com/parmarhimanshu31
-- How to reach me: :point_down:
+- Want to know more about me: :point_down:
 - linkedIn :- https://www.linkedin.com/in/himanshu-parmar-516b27186/
